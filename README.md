@@ -12,7 +12,7 @@ He defines himself like an engineer, but he can't even code in html.
 
 He also speaks about his projects. One of them impressed me a lot.
 "My engineers team (me included) is working for a new chatgpt without limitations".
-It can be an huge idea, if only he known code 🤣.
+It can be an huge idea, if only he knowns code 🤣.
 
 
 
